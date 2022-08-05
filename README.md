@@ -1,4 +1,4 @@
-![Header image]([https://1.bp.blogspot.com/-h9RY_CeB4Tc/XiRti-v26cI/AAAAAAAACCM/KJSIo594GtMAOyZjV4BCRf_6dwvv_xJEACLcBGAsYHQ/s1600/DREAMHARD.png](https://www.iloveimg.com/download/kh772y7s1xz77t38hx7b4llwngsx6b9pyshrzcffwld9v8pgnzlh1882wxbfnlvgpr90f5z0rk2bp4qzvlblyAcsj80m43b95ht9rjgw5bbwygAxgnsh1qxhhq5pgzj1wm5tw48znflkstf9pf3s8hgxw6dzkgtlm40l94rmn0g5vbh1hkqq/1))
+![Header image](https://iphoneswallpapers.com/wp-content/uploads/2021/08/Coder-Life-iPhone-Wallpaper.jpg)
 
 <h1 align="center">Phuong Vu (Chloe)</h1>
 
