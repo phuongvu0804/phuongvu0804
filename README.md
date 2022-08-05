@@ -1,4 +1,4 @@
-![Header image](https://iphoneswallpapers.com/wp-content/uploads/2021/08/Coder-Life-iPhone-Wallpaper.jpg)
+![Header image](https://wallpaperaccess.com/full/314827.jpg)
 
 <h1 align="center">Phuong Vu (Chloe)</h1>
 
